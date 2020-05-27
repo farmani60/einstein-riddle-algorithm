@@ -29,4 +29,4 @@ Hints:
 * the Norwegian lives next to the blue house
 * the man who smokes blend has a neighbor who drinks water
 
-Einstein wrote this riddle this century. He said that 98% of the world could not solve it.
+Einstein wrote this riddle this century. He said that 98% of the world could not solve it. [ He might have been kidding! :) ]
